@@ -1,0 +1,2 @@
+- Hi, I’m omar almasri
+- Student at Fanshawe 
